@@ -1,6 +1,6 @@
 # MakrobiosPsyche
 
-Index: 	Coming Soon ....
+Index: NOT Coming Soon ....
 	
 Chapter: 1  -  Paragraph: 1	Pandora's Parameters - introduction to identity core ai comprehension
 	
